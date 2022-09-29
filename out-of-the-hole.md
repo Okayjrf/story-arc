@@ -6,7 +6,7 @@ Our story begins with...
 
 
 ## Chapter 2: Quest
-
+To win the fight against all odd, to come out on top and be the top dog of the school, but knowing who she is, she got this easy.
 
 ## Chapter 3: Hardship
 
